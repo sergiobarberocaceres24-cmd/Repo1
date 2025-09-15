@@ -2,6 +2,6 @@
 # **_LA ESQUIZOFRENIA_** 
 ## *Juego mas loco que existe* 
 ### creado por 3 pendejos en su clase 
-### kevin: retrasado
+### kevin: retrasado, subnormal
 ### oliver: imbecil, diabetico
 ### sergio: esquizofrenico
